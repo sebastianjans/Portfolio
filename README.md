@@ -1,4 +1,4 @@
-# 🚀 Jans IT Solutions: Maßgeschneiderte IT-Lösungen 
+# 🚀 Maßgeschneiderte IT-Lösungen: Jans IT Solutions
 
 Standardsoftware passt nicht zu Ihren Prozessen? Wir entwickeln individuelle Lösungen, die exakt auf Ihre Anforderungen zugeschnitten sind – für effizientere Abläufe und nachhaltigen Geschäftserfolg. 
 
